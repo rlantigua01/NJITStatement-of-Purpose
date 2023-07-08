@@ -1,0 +1,1 @@
+# NJITStatement-of-Purspose
