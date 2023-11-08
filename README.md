@@ -7,8 +7,8 @@ When I ponder over that thought, I also remember I'm not alone in that dream and
 
 In order to begin taking control, becoming part of the Apple team, and leaving the world dreaming of what is going to be possible; I'm requiring more education. As I scholarly grow, I exponentially can increase what I earn, and this flexibility allows me the efforts I daily make in order to leave impacts. My statement of purpose in this application and hope for scholarships is a chance to leave a lot of people with dreams. 
 
-Thanks so much. 
+Take regards. Thanks so much. 
 
-Best regards,
+Best,
 
 Rolando
